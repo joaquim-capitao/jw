@@ -54,24 +54,21 @@
 
 [Salmo 72:7](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19072007&pub=nwtsty) - Haverá abundância de paz
 
-### |
+<br>
+### Objeções
 
-### [[___ “É impossível” ___]]
+[“É impossível”](joaquim-capitao.github.io/jw/e-impossivel.md)
 
-### [[___ “Temos de ser nós” ___]]
+[“Temos de ser nós”](joaquim-capitao.github.io/jw/temos-de-ser-nos)
 
-### [[___ “Por que Deus permite” __]]
+[“Por que Deus permite”](joaquim-capitao.github.io/jw/por-que-deus-permite)
 
-### [[___”Não acredito na Bíblia”___]]
+["Não acredito na Bíblia"](joaquim-capitao.github.io/jw/nao-acredito-na-biblia)
 
-### [[___”Não acredito em Deus”___]]
+["Não acredito em Deus”](joaquim-capitao.github.io/jw/nao-acredito-em-deus)
 
-|
-|
-|
-### [[Assuntos gerais (Index)]]
-
-
+<br>
+[Assuntos gerais (Index)](joaquim-capitao.github.io/jw/assuntos-gerais)
 
 
 
