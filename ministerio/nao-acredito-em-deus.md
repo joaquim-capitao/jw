@@ -1,6 +1,4 @@
----
 
----
 
 [Artigo: Será que Deus Existe?](https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/deus-existe/)
 
