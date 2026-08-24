@@ -10,7 +10,7 @@
 [Mateus 9:35](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=40009035&pub=nwtsty) - Jesus curava todo o tipo de doenças
 
 <br>
-### **Depressão**/**Tristeza**
+### **Depressão/Tristeza**
 
 [Fil. 4:6, 7](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=50004006&pub=nwtsty) - “Não fiquem ansiosos.. por orações e súplicas…”
 
