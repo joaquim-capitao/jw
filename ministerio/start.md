@@ -57,7 +57,7 @@
 <br>
 ### Objeções
 
-[É impossível](joaquim-capitao.github.io/jw/ministerio/e-impossivel.md)
+[É impossível](e-impossivel.md)
 
 [Temos de ser nós](joaquim-capitao.github.io/jw/ministerio/temos-de-ser-nos)
 
