@@ -1,6 +1,3 @@
----
-
----
 
 [Lucas 1:37](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=42001037&pub=nwtsty) - Nenhuma declaração é impossível
 
