@@ -57,18 +57,18 @@
 <br>
 ### Objeções
 
-[“É impossível”](joaquim-capitao.github.io/jw/e-impossivel.md)
+[“É impossível”](joaquim-capitao.github.io/jw/ministerio/e-impossivel.md)
 
-[“Temos de ser nós”](joaquim-capitao.github.io/jw/temos-de-ser-nos)
+[“Temos de ser nós”](joaquim-capitao.github.io/jw/ministerio/temos-de-ser-nos)
 
-[“Por que Deus permite”](joaquim-capitao.github.io/jw/por-que-deus-permite)
+[“Por que Deus permite”](joaquim-capitao.github.io/jw/ministerio/por-que-deus-permite)
 
-["Não acredito na Bíblia"](joaquim-capitao.github.io/jw/nao-acredito-na-biblia)
+["Não acredito na Bíblia"](joaquim-capitao.github.io/jw/ministerio/nao-acredito-na-biblia)
 
-["Não acredito em Deus”](joaquim-capitao.github.io/jw/nao-acredito-em-deus)
+["Não acredito em Deus”](joaquim-capitao.github.io/jw/ministerio/nao-acredito-em-deus)
 
 <br>
-[Assuntos gerais](joaquim-capitao.github.io/jw/assuntos-gerais)
+[Assuntos gerais](joaquim-capitao.github.io/jw/ministerio/assuntos-gerais)
 
 
 
