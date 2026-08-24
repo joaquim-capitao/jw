@@ -68,7 +68,8 @@
 ["Não acredito em Deus”](joaquim-capitao.github.io/jw/nao-acredito-em-deus)
 
 <br>
-[Assuntos gerais (Index)](joaquim-capitao.github.io/jw/assuntos-gerais)
+[Assuntos gerais](joaquim-capitao.github.io/jw/assuntos-gerais)
+
 
 
 
