@@ -2,12 +2,12 @@
 
 <br>
 
-Muitas vezes,
-mostramos uma promessa para o futuro
-e o morador diz não acreditar.
-
-Vamos dar algumas sugestões:
-
+Muitas vezes,  
+mostramos uma promessa para o futuro  
+e o morador diz não acreditar.  
+  
+Vamos dar algumas sugestões:  
+  
 ---
 **(Rom. 8:32)**
 ### - Como este texto pode ajudar o morador?
