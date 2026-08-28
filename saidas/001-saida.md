@@ -30,7 +30,7 @@ Vamos dar algumas sugestões:
 
 ---
 Portanto,  
-vamos mostrar às pessoas,
-não apenas as promessas de Deus,
-mas porque podemos acreditar nelas. 
+vamos mostrar às pessoas,  
+não apenas as promessas de Deus,  
+mas porque podemos acreditar nelas.   
 
