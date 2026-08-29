@@ -1,4 +1,4 @@
-# O que pode ajudar a ter mais confiança?
+# O que pode ajudar a ter mais confiança para iniciar estudos?
 
 Às vezes,   
 não nos sentimos preparados   
@@ -20,7 +20,8 @@ Jeová considera-nos qualificados
 
 
 
-Quem dá a ordem de ensinar outrosé aquele que tem "toda a autoridade".
+Quem dá a ordem de ensinar outros   
+é aquele que tem "toda a autoridade".
 
 ---
 **(João 12:49)**
@@ -33,8 +34,8 @@ e nós devemos fazer o mesmo.
 ---
 
 Portanto,
-se nos lembrarmos que Jeová nos qualifica,
-que a ordem vem de Jesus,
-e que somos treinados pela organização,
-teremos mais coragem para iniciar estudos!
+se nos lembrarmos que Jeová nos qualifica,  
+que a ordem vem de Jesus,  
+e que somos treinados pela organização,  
+teremos mais coragem para iniciar estudos!  
 
