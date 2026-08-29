@@ -6,7 +6,7 @@
 
 [003 - Pessoas sem interesse](https://joaquim-capitao.github.io/jw/saidas/003-saida)
 
-[004 - Iniciar Estudos Bíblicos](https://joaquim-capitao.github.io/jw/saidas/004-saida)
+[004 - Iniciar Estudos Bíblicos com Confiança](https://joaquim-capitao.github.io/jw/saidas/004-saida)
 
 [005 - Situações que exigem coragem](https://joaquim-capitao.github.io/jw/saidas/005-saida)
 
