@@ -11,7 +11,7 @@ Jesus aplicou o seguinte princípio bíblico:
 
 **(Provérbios 23:9)**
 
-## Como podemos aplicar este versículo ao nosso ministério?...
+### Como podemos aplicar este versículo ao nosso ministério?...
 
 Há moradores que:
 . Levantam questões, mas não querem ouvir a resposta
