@@ -6,7 +6,8 @@ Quando falamos em vida eterna, algumas pessoas dizem:
 ---
 
 Um texto que pode ajudar é:  
-[Isaías 45:18 ](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=23045018&pub=nwtsty)Pois assim diz Jeová,O Criador dos céus, o verdadeiro Deus,Aquele que formou a terra e que a fez, aquele que a estabeleceu firmemente,Que não a criou simplesmente para nada, mas formou-a para ser <u>habitada</u>:“Eu sou Jeová, e não há outro.
+[Isaías 45:18 ](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=23045018&pub=nwtsty)
+Pois assim diz Jeová,O Criador dos céus, o verdadeiro Deus,Aquele que formou a terra e que a fez, aquele que a estabeleceu firmemente,Que não a criou simplesmente para nada, mas formou-a para ser <u>habitada</u>:“Eu sou Jeová, e não há outro.
 <br>
 Depois,
 podemos raciociar:  
