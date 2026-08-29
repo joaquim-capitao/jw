@@ -13,6 +13,8 @@ Jesus aplicou o seguinte princípio bíblico:
 
 ### Como podemos aplicar este versículo ao nosso ministério?...
 
+<br>
+
 Há moradores que:
 - Levantam questões, mas não querem ouvir a resposta
 - Não nos deixam falar
