@@ -1,24 +1,20 @@
 # 006 Fazer revisitas
 
+Todos sabemos que é importante fazer revisitas.
 
-**(Atos 8:30, 31)**
+### - Conhecemos exemplos bíblicos que provam a importância disso?
 
-Filipe ajudou Eunuco etíope
-
-
+---
 
 **(Atos 18:26)**
-
-Áquila e Priscila ajudaram Apolo
-
-
-* O que há em comum nestes 2 relatos?
+<br>
 
 * Será que as pessoas conseguem entender a verdade sozinhas?
 
-* Então o que devemos fazer com aqueles que aceitaram a revista?
+* Então o que devemos fazer com aqueles que mostraram algum interesse?
 
 * Como podemos fazer a transição para o livro Seja Feliz?
+
 
 
 
