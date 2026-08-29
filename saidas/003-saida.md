@@ -14,10 +14,10 @@ Jesus aplicou o seguinte princípio bíblico:
 ### Como podemos aplicar este versículo ao nosso ministério?...
 
 Há moradores que:
-. Levantam questões, mas não querem ouvir a resposta
-. Não nos deixam falar
-. Querem pregar as suas ideias a nós
-. Insultam-nos
+- Levantam questões, mas não querem ouvir a resposta
+- Não nos deixam falar
+- Querem pregar as suas ideias a nós
+- Insultam-nos
 
 ---
 
