@@ -36,9 +36,9 @@
 
 [018 - Ensine com coragem](https://joaquim-capitao.github.io/jw/saidas/018-saida)
 
-[019 - Tema](https://joaquim-capitao.github.io/jw/saidas/019-saida)
+[019 - A mensagem ficou menos urgente?](https://joaquim-capitao.github.io/jw/saidas/019-saida)
 
-[020 - Tema](https://joaquim-capitao.github.io/jw/saidas/020-saida)
+[020 - "Temos de ser nós a mudar isto"](https://joaquim-capitao.github.io/jw/saidas/020-saida)
 
 [021 - Tema](https://joaquim-capitao.github.io/jw/saidas/021-saida)
 
