@@ -26,19 +26,19 @@ podemos raciociar:
 <br>
 Fatores a ter em conta:
 
-. Para Deus tudo é possível  
-. Deus tem poder sobre a procriação  
-. Tem poder sobre o meio ambiente  
-. Tem poder de regular a vida com perfeito equilíbrio  
-. Deus é amor  
+- Para Deus tudo é possível  
+- Deus tem poder sobre a procriação  
+- Tem poder sobre o meio ambiente  
+- Tem poder de regular a vida com perfeito equilíbrio  
+- Deus é amor  
 
 <br>
 ---
 
 ### Temos base para acreditar que Deus usa o seu poder de forma surpreendente?...
 
-. Quando os israelitas estavam encurralados, quem diria que o mar iria abrir?  
-. Quando estavam no deserto, quem diria que comida cairia do céu?  
+- Quando os israelitas estavam encurralados, quem diria que o mar iria abrir?  
+- Quando estavam no deserto, quem diria que comida cairia do céu?  
 <br>
 Isto mostra que  
 Quando Jeová faz o uma promessa,  
