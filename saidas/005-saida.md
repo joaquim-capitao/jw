@@ -43,7 +43,8 @@ Isso mostra notável coragem e persistência.
 ### - Que exemplos bíblicos temos de servos de Jeová que lidaram com o medo?...
 <br>
 
-**(Jeremias 1:6-8; 20:7-9)**
+**(Jeremias 1:6-8; 20:7-9)**  
+
 Jeremias, o profeta  
 Apesar de sentir medo e até desejar parar,  
 continuou a pregar porque a mensagem ardia dentro dele como fogo.   
