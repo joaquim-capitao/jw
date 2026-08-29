@@ -1,4 +1,5 @@
-# O que pode ajudar a ter mais confiança para iniciar estudos?
+
+# Como sentir confiança para iniciar estudos bíblicos?
 
 Às vezes,   
 não nos sentimos preparados   
