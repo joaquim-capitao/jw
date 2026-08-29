@@ -31,14 +31,16 @@ e confiança em Jeová.
 ### - Que exemplos bíblicos temos?...
 <br>
 
-** (Atos 14:19-22) **
+**(Atos 14:19-22)**
 Depois de ter sido apedrejado e deixado como morto,   
 Paulo voltou à cidade para fortalecer os discípulos.    
 Isso mostra notável coragem e persistência.
 
+---
+
 ## 3. Medo
 
-** (Jeremias 1:6-8; 20:7-9) **
+**(Jeremias 1:6-8; 20:7-9)**
 Jeremias, o profeta  
 Apesar de sentir medo e até desejar parar, 
 continuou a pregar porque a mensagem ardia dentro dele como fogo. 
