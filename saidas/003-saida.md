@@ -15,13 +15,13 @@ Jesus aplicou o seguinte princípio bíblico:
 
 <br>
 
+---
+
 Há moradores que:
 - Levantam questões, mas não querem ouvir a resposta
 - Não nos deixam falar
 - Querem pregar as suas ideias a nós
 - Insultam-nos
-
----
 
 ### O que devemos fazer com esses moradores?...
 
