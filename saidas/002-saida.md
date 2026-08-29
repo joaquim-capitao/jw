@@ -5,33 +5,34 @@
 
 ### - Como podemos demonstrar cada uma destas qualidades?
 
-### Compaixão?
+### - Compaixão?
 (Sofrer com os que sofrem)  
 Adaptamos a mensagem,  
 conforme a preocupação das pessoas
 <br>
+
 ---
-### Bondade?  
+### - Bondade?  
 (Fazer o bem)  
 Damos ajuda prática à pessoa,  
 e respeitamos se ela estiver ocupada ou com visitas.
 <br>
 
 ---
-### Humildade
+### - Humildade?
 (Ausência de orgulho - Reconhecemos a nossa pequenez)  
 Não somos dogmáticos,    
 reconhecemos que não sabemos tudo.  
 <br>
 
 ---
-### Brandura   
+### - Brandura?   
 (Somos calmos e respeitosos)  
 Não respondemos àqueles que nos insultam.  
 <br>
 
 ---
-### Paciência
+### - Paciência?
 (Saber esperar)  
 Não desistimos imediatamente das pessoas.  
 Reconhecemos que cada pessoa tem o seu ritmo.  
