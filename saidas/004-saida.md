@@ -27,7 +27,10 @@ Quem dá a ordem de ensinar outrosé aquele que tem "toda a autoridade".
 ### Segundo este texto, porque podemos ter confiança?
 <br>
 
-Jesus aceitava treinamento e orientações,e nós devemos fazer o mesmo.
+Jesus aceitava treinamento e orientações,  
+e nós devemos fazer o mesmo.
+
+---
 
 Portanto,
 se nos lembrarmos que Jeová nos qualifica,
