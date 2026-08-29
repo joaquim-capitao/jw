@@ -6,7 +6,7 @@
 
 ---
 
-**1. Abordar pessoas desconhecidas
+## 1. Abordar pessoas desconhecidas
 
 Iniciar conversas com estranhos,  
 quando parecem ocupados ou pouco recetivos,  
@@ -20,7 +20,7 @@ Filipe fala com o eunuco etíope
 
 ---
 
-**2. Voltar a territórios difíceis
+## 2. Voltar a territórios difíceis
 
 (Regressar a casas    
 onde anteriormente houve rejeição    
@@ -36,9 +36,9 @@ Depois de ter sido apedrejado e deixado como morto,
 Paulo voltou à cidade para fortalecer os discípulos.    
 Isso mostra notável coragem e persistência.
 
-**2. Medo
+## 3. Medo
 
-(Jeremias 1:6-8; 20:7-9)
+** (Jeremias 1:6-8; 20:7-9) **
 Jeremias, o profeta  
 Apesar de sentir medo e até desejar parar, 
 continuou a pregar porque a mensagem ardia dentro dele como fogo. 
