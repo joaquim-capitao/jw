@@ -44,7 +44,7 @@
 
 [022 - Tema](https://joaquim-capitao.github.io/jw/saidas/022-saida)
 
-[023 - Tema](https://joaquim-capitao.github.io/jw/saidas/023-saida)
+[023 - Não falem mal de ninguém](https://joaquim-capitao.github.io/jw/saidas/023-saida)
 
 [024 - Tema](https://joaquim-capitao.github.io/jw/saidas/024-saida)
 
