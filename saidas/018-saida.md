@@ -19,28 +19,27 @@ era uma mensagem dura.
 
 “Samuel contou-lhe tudo e não lhe escondeu nada.”
 
-Apesar da mensagem ser dura,
+Apesar da mensagem ser dura,  
+Eli disse tudo o que Jeová mandou.  
 
-Eli disse tudo o que Jeová mandou.
+---
 
-* Como podemos aplicar isso ao ministério de casa em casa?
+### Como podemos aplicar isso ao ministério de casa em casa?
 
-Quando questionados sobre as nossas crenças
+Quando questionados sobre as nossas crenças  
+não devemos hesitar em dizer a verdade.  
+Não usamos expressões que amenizam a mensagem.  
 
-não devemos hesitar em dizer a verdade.
+---
 
-Não usamos expressões que amenizam a mensagem.
+### Como podemos aplicar isto aos estudos?
 
-* Como podemos aplicar isto aos estudos?
+Quando há algo que impede o estudante de fazer progresso,   
+falamos sobre isso de forma clara.  
 
-Quando há algo que impede o estudante de fazer progresso,
-
-falamos sobre isso de forma clara.
-
-__
+---
 
 Conclusão:
 
-Falamos com amor e empatia,
-
+Falamos com amor e empatia,  
 mas não deixamos de dizer aquilo que é a verdade.
