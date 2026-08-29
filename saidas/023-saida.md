@@ -24,7 +24,7 @@ Podemos salientar textos tais como:
 
 <br>
 
-([Eclesiastes 8:9](https://www.jw.org/finder?wtlocale=TPO&pub=nwtsty&srctype=wol&bible=21008009&srcid=share))
+[Eclesiastes 8:9](https://www.jw.org/finder?wtlocale=TPO&pub=nwtsty&srctype=wol&bible=21008009&srcid=share)
 
 *“Eu vi tudo isto e pus-me a refletir em todo o trabalho que se tem feito debaixo do sol, enquanto homem domina homem para o seu prejuízo.”*
 
