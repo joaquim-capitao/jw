@@ -1,6 +1,3 @@
----
-layout: style-AL
----
 
 # 001 - Quando duvidam das promessas de Jeová
 
