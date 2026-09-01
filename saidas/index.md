@@ -48,7 +48,7 @@
 
 [024 - Fale com convicção](https://joaquim-capitao.github.io/jw/saidas/024-saida)
 
-[025 - Tema](https://joaquim-capitao.github.io/jw/saidas/025-saida)
+[025 - Quando nos elogiam](https://joaquim-capitao.github.io/jw/saidas/025-saida)
 
 [026 - Tema](https://joaquim-capitao.github.io/jw/saidas/026-saida)
 
