@@ -46,7 +46,7 @@
 
 [023 - Não falem mal de ninguém](https://joaquim-capitao.github.io/jw/saidas/023-saida)
 
-[024 - Tema](https://joaquim-capitao.github.io/jw/saidas/024-saida)
+[024 - Fale com convicção](https://joaquim-capitao.github.io/jw/saidas/024-saida)
 
 [025 - Tema](https://joaquim-capitao.github.io/jw/saidas/025-saida)
 
