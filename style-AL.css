@@ -73,13 +73,13 @@ h1, h2, h3, h4 {
 }
 
 h1 {
-  font-size: 1.5 rem;
-  font-weight: 400;
+  font-size: 1.2 rem;
+  font-weight: 200;
 }
 
 h2 {
-  font-size: 1.5rem;
-  font-weight: 500;          /* Peso ligeiramente menor para elegância */
+  font-size: 1.2rem;
+  font-weight: 200;          /* Peso ligeiramente menor para elegância */
   border-left: 4px solid var(--accent);
   padding-left: 0.75rem;
 }
