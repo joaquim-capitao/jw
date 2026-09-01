@@ -1,6 +1,3 @@
----
-layout: style-AL
----
 
 # Saídas ao campo
 
