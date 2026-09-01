@@ -1,7 +1,3 @@
----
-layout: style-AL
----
-
 
 # 002 - Paciência e Bondade
 
