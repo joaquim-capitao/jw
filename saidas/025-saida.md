@@ -1,6 +1,8 @@
-# 025 - Quando nos elogiam
+# 025 - Quando nos elogiam  
 
 **(Atos 14:12-15)**
+*"12 Eles começaram a chamar Zeus a Barnabé e Hermes a Paulo, pois era ele que lhes dirigia a palavra. 13 O sacerdote de Zeus, cujo templo ficava na entrada da cidade, levou touros e grinaldas até aos portões, e queria oferecer sacrifícios com as multidões. 14 Quando os apóstolos Barnabé e Paulo souberam disso, rasgaram as suas roupas, correram para o meio da multidão e gritaram: 15 “Homens, porque é que estão a fazer isto? Nós também somos humanos e temos as mesmas fraquezas que vocês"*
+
 ---
 ### - Porque é que Paulo e Barnabé agiram assim?...
 <br>
