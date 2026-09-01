@@ -1,7 +1,3 @@
----
-layout: style-AL
----
-
 # Saídas ao campo
 
 [001 - Quando duvidam das promessas de Jeová](https://joaquim-capitao.github.io/jw/saidas/001-saida)
