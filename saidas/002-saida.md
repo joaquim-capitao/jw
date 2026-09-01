@@ -1,3 +1,8 @@
+---
+layout: style-AL
+---
+
+
 # 002 - Paciência e Bondade
 
 **Colossenses 3:12**:  
