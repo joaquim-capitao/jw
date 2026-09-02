@@ -55,6 +55,18 @@
 [Salmo 72:7](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19072007&pub=nwtsty) - Haverá abundância de paz
 
 <br>
+### **Encorajamento**  
+
+[Êxodo 3:7](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=02003007&pub=nwtsty) - "Sei muito bem o que estão a sofrer"
+
+[Isaías 63:9](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=23063009&pub=nwtsty) - "Durante a aflição deles, Ele também ficou aflito)
+
+[Salmo 34:18](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19034018&pub=nwtsty) - "Jeová está perto dos que têm coração quebrantado"
+
+[Salmo 55:22](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19055022&pub=nwtsty) - "Lança o teu fardo sobre Jeová"
+
+
+<br>
 ### Objeções
 
 [É impossível](e-impossivel.md)
