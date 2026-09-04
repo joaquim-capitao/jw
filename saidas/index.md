@@ -13,7 +13,7 @@
 
 [006 - Fazer revisitas](https://joaquim-capitao.github.io/jw/saidas/006-saida)
 
-[007 - Tema](https://joaquim-capitao.github.io/jw/saidas/007-saida)
+[007 - Iniciar estudos por indicação](https://joaquim-capitao.github.io/jw/saidas/007-saida)
 
 [008 - Tema](https://joaquim-capitao.github.io/jw/saidas/008-saida)
 
