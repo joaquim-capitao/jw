@@ -1,20 +1,20 @@
-[Aborto](https://joaquim.capitao.github.io/jw/assuntos/aborto.md)
+[Aborto](https://joaquim.capitao.github.io/jw/assuntos/aborto)
 
-[Adão e Eva](https://joaquim.capitao.github.io/jw/assuntos/adao-e-eva.md)
+[Adão e Eva](https://joaquim.capitao.github.io/jw/assuntos/adao-e-eva)
 
-[Adoração de antepassados](https://joaquim.capitao.github.io/jw/assuntos/adoracao-de-antepassados.md)
+[Adoração de antepassados](https://joaquim.capitao.github.io/jw/assuntos/adoracao-de-antepassados)
 
-[Alma](https://joaquim.capitao.github.io/jw/assuntos/alma.md)
+[Alma](https://joaquim.capitao.github.io/jw/assuntos/alma)
 
-[Aniversário natalício](https://joaquim.capitao.github.io/jw/assuntos/aniversario-natalicio.md)
+[Aniversário natalício](https://joaquim.capitao.github.io/jw/assuntos/aniversario-natalicio)
 
-[Anticristo](https://joaquim.capitao.github.io/jw/assuntos/anticristo.md)
+[Anticristo](https://joaquim.capitao.github.io/jw/assuntos/anticristo)
 
-[Apostasia](https://joaquim.capitao.github.io/jw/assuntos/apostasia.md)
+[Apostasia](https://joaquim.capitao.github.io/jw/assuntos/apostasia)
 
-[Armagedom](https://joaquim.capitao.github.io/jw/assuntos/armagedom.md)
+[Armagedom](https://joaquim.capitao.github.io/jw/assuntos/armagedom)
 
-[Arrebatamento](https://joaquim.capitao.github.io/jw/assuntos/arrebatamento.md)
+[Arrebatamento](https://joaquim.capitao.github.io/jw/assuntos/arrebatamento)
 
 [Babilónia, a Grande](https://joaquim.capitao.github.io/jw/assuntos/babilonia-a-grande.md)
 
