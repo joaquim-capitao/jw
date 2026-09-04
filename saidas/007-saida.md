@@ -13,7 +13,8 @@
 
 Quando dirigimos um estudo  
 podemos perguntar ao estudante:  
-"Conhece alguém que também gostaria de estudar a Bíblia?"
+*"Conhece alguém que também gostaria  
+de estudar a Bíblia?"*
 
 ---
 ### - Será que é um método eficaz?
@@ -21,19 +22,19 @@ podemos perguntar ao estudante:
 A Sentinela de Fevereiro de 2025  
 contou a experiência de **Mary**. 
 
-> Mary dirigia um estudo com uma senhora.
-> e perguntou-lhe   
+> Mary dirigia um estudo com uma senhora  
+> e perguntou-lhe  
 > "Você conhece alguém que também quer estudar a Bíblia?"  
-
+> 
 > A filha da estudante  
 > achava que as TJ eram uma seita,  
 > mas bastou assistir uma sessão de estudo  
 > para mudar a opinião sobre nós.   
-
+> 
 > Então,   
 > falou às amigas  
 > que falaram aos maridos.  
-
+> 
 > Resultado:  
 > 28 pessoas começaram a estudar   
 > e no momento em que o artigo foi publicado  
