@@ -1,4 +1,4 @@
-### Iniciar Estudos por Indicação
+## Iniciar Estudos por Indicação
 
 **(João 1:40-42)**
 *"André, irmão de Simão Pedro, foi um dos dois que ouviram as palavras de João e seguiram Jesus. 41 Ele primeiro encontrou seu irmão, Simão, e lhe disse: “Achamos o Messias” (que traduzido é Cristo), 42 e então o levou a Jesus. Quando Jesus olhou para ele, disse: “Você é Simão, filho de João. Você será chamado Cefas” (que traduzido é Pedro)."*
