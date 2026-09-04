@@ -4,7 +4,7 @@
 
 [Adoração de antepassados](https://joaquim-capitao.github.io/jw/assuntos/adoracao-de-antepassados)
 
-[Alma](https://joaquim-capitao.github.io/jw/assuntos/alma.md)
+[Alma](https://joaquim-capitao.github.io/jw/assuntos/alma)
 
 [Aniversário natalício](https://joaquim-capitao.github.io/jw/assuntos/aniversario-natalicio)
 
@@ -16,136 +16,136 @@
 
 [Arrebatamento](https://joaquim-capitao.github.io/jw/assuntos/arrebatamento)
 
-[Babilónia, a Grande](https://joaquim-capitao.github.io/jw/assuntos/babilonia-a-grande.md)
+[Babilónia, a Grande](https://joaquim-capitao.github.io/jw/assuntos/babilonia-a-grande)
 
-[Batismo](https://joaquim-capitao.github.io/jw/assuntos/batismo.md)
+[Batismo](https://joaquim-capitao.github.io/jw/assuntos/batismo)
 
-[Bíblia](https://joaquim-capitao.github.io/jw/assuntos/biblia.md)
+[Bíblia](https://joaquim-capitao.github.io/jw/assuntos/biblia)
 
-[Casamento](https://joaquim-capitao.github.io/jw/assuntos/casamento.md)
+[Casamento](https://joaquim-capitao.github.io/jw/assuntos/casamento)
 
-[Céu](https://joaquim.capitao-github.io/jw/assuntos/ceu.md)
+[Céu](https://joaquim.capitao-github.io/jw/assuntos/ceu)
 
-[Comemoração](https://joaquim-capitao.github.io/jw/assuntos/comemoracao.md)
+[Comemoração](https://joaquim-capitao.github.io/jw/assuntos/comemoracao)
 
-[Confissão](https://joaquim-capitao.github.io/jw/assuntos/confissao.md)
+[Confissão](https://joaquim-capitao.github.io/jw/assuntos/confissao)
 
-[Criação](https://joaquim-capitao.github.io/jw/assuntos/criacao.md)
+[Criação](https://joaquim-capitao.github.io/jw/assuntos/criacao)
 
-[Cruz](https://joaquim-capitao.github.io/jw/assuntos/cruz.md)
+[Cruz](https://joaquim-capitao.github.io/jw/assuntos/cruz)
 
-[Curas](https://joaquim-capitao.github.io/jw/assuntos/curas.md)
+[Curas](https://joaquim-capitao.github.io/jw/assuntos/curas)
 
-[Datas](https://joaquim-capitao.github.io/jw/assuntos/datas.md)
+[Datas](https://joaquim-capitao.github.io/jw/assuntos/datas)
 
-[Destino](https://joaquim-capitao.github.io/jw/assuntos/destino.md)
+[Destino](https://joaquim-capitao.github.io/jw/assuntos/destino)
 
-[Deus](https://joaquim-capitao.github.io/jw/assuntos/deus.md)
+[Deus](https://joaquim-capitao.github.io/jw/assuntos/deus)
 
-[Drogas](https://joaquim-capitao.github.io/jw/assuntos/drogas.md)
+[Drogas](https://joaquim-capitao.github.io/jw/assuntos/drogas)
 
-[Encorajamento](https://joaquim-capitao.github.io/jw/assuntos/encorajamento.md)
+[Encorajamento](https://joaquim-capitao.github.io/jw/assuntos/encorajamento)
 
-[Espiritismo](https://joaquim-capitao.github.io/jw/assuntos/espiritismo.md)
+[Espiritismo](https://joaquim-capitao.github.io/jw/assuntos/espiritismo)
 
-[Espírito](https://joaquim-capitao.github.io/jw/assuntos/espirito.md)
+[Espírito](https://joaquim-capitao.github.io/jw/assuntos/espirito)
 
-[Espírito do mundo](https://joaquim-capitao.github.io/jw/assuntos/espirito-do-mundo.md)
+[Espírito do mundo](https://joaquim-capitao.github.io/jw/assuntos/espirito-do-mundo)
 
-[Evolução](https://joaquim-capitao.github.io/jw/assuntos/evolucao.md)
+[Evolução](https://joaquim-capitao.github.io/jw/assuntos/evolucao)
 
-[Falsos profetas](https://joaquim-capitao.github.io/jw/assuntos/falsos-profetas.md)
+[Falsos profetas](https://joaquim-capitao.github.io/jw/assuntos/falsos-profetas)
 
-[Fé](https://joaquim-capitao.github.io/jw/assuntos/fe.md)
+[Fé](https://joaquim-capitao.github.io/jw/assuntos/fe)
 
-[Feriados](https://joaquim-capitao.github.io/jw/assuntos/feriados.md)
+[Feriados](https://joaquim-capitao.github.io/jw/assuntos/feriados)
 
-[Filosofia](https://joaquim-capitao.github.io/jw/assuntos/filosofia.md)
+[Filosofia](https://joaquim-capitao.github.io/jw/assuntos/filosofia)
 
-[Governo](https://joaquim-capitao.github.io/jw/assuntos/governo.md)
+[Governo](https://joaquim-capitao.github.io/jw/assuntos/governo)
 
-[Imagens](https://joaquim-capitao.github.io/jw/assuntos/imagens.md)
+[Imagens](https://joaquim-capitao.github.io/jw/assuntos/imagens)
 
-[Independência](https://joaquim-capitao.github.io/jw/assuntos/independencia.md)
+[Independência](https://joaquim-capitao.github.io/jw/assuntos/independencia)
 
-[Inferno](https://joaquim-capitao.github.io/jw/assuntos/inferno.md)
+[Inferno](https://joaquim-capitao.github.io/jw/assuntos/inferno)
 
-[Iniqüidade](https://joaquim-capitao.github.io/jw/assuntos/iniquidade.md)
+[Iniqüidade](https://joaquim-capitao.github.io/jw/assuntos/iniquidade)
 
-[Jeová](https://joaquim-capitao.github.io/jw/assuntos/jeova.md)
+[Jeová](https://joaquim-capitao.github.io/jw/assuntos/jeova)
 
-[Jesus Cristo](https://joaquim-capitao.github.io/jw/assuntos/jesus-cristo.md)
+[Jesus Cristo](https://joaquim-capitao.github.io/jw/assuntos/jesus-cristo)
 
-[Judeus](https://joaquim-capitao.github.io/jw/assuntos/judeus.md)
+[Judeus](https://joaquim-capitao.github.io/jw/assuntos/judeus)
 
-[Línguas, Falar em](https://joaquim-capitao.github.io/jw/assuntos/linguas-falar-em.md)
+[Línguas, Falar em](https://joaquim-capitao.github.io/jw/assuntos/linguas-falar-em)
 
-[Maria](https://joaquim-capitao.github.io/jw/assuntos/maria.md)
+[Maria](https://joaquim-capitao.github.io/jw/assuntos/maria)
 
-[Missa](https://joaquim-capitao.github.io/jw/assuntos/missa.md)
+[Missa](https://joaquim-capitao.github.io/jw/assuntos/missa)
 
-[Morte](https://joaquim-capitao.github.io/jw/assuntos/morte.md)
+[Morte](https://joaquim-capitao.github.io/jw/assuntos/morte)
 
-[Mulheres](https://joaquim-capitao.github.io/jw/assuntos/mulheres.md)
+[Mulheres](https://joaquim-capitao.github.io/jw/assuntos/mulheres)
 
-[Mundo](https://joaquim-capitao.github.io/jw/assuntos/mundo.md)
+[Mundo](https://joaquim-capitao.github.io/jw/assuntos/mundo)
 
-[Nascer de novo](https://joaquim-capitao.github.io/jw/assuntos/nascer-de-novo.md)
+[Nascer de novo](https://joaquim-capitao.github.io/jw/assuntos/nascer-de-novo)
 
-[Neutralidade](https://joaquim-capitao.github.io/jw/assuntos/neutralidade.md)
+[Neutralidade](https://joaquim-capitao.github.io/jw/assuntos/neutralidade)
 
-[Oração](https://joaquim-capitao.github.io/jw/assuntos/oracao.md)
+[Oração](https://joaquim-capitao.github.io/jw/assuntos/oracao)
 
-[Organização](https://joaquim-capitao.github.io/jw/assuntos/organizacao.md)
+[Organização](https://joaquim-capitao.github.io/jw/assuntos/organizacao)
 
-[Paraíso](https://joaquim-capitao.github.io/jw/assuntos/paraiso.md)
+[Paraíso](https://joaquim-capitao.github.io/jw/assuntos/paraiso)
 
-[Pecado](https://joaquim-capitao.github.io/jw/assuntos/pecado.md)
+[Pecado](https://joaquim-capitao.github.io/jw/assuntos/pecado)
 
-[Profecia](https://joaquim-capitao.github.io/jw/assuntos/profecia.md)
+[Profecia](https://joaquim-capitao.github.io/jw/assuntos/profecia)
 
-[Purgatório](https://joaquim-capitao.github.io/jw/assuntos/purgatorio.md)
+[Purgatório](https://joaquim-capitao.github.io/jw/assuntos/purgatorio)
 
-[Raças da humanidade](https://joaquim-capitao.github.io/jw/assuntos/racas-da-humanidade.md)
+[Raças da humanidade](https://joaquim-capitao.github.io/jw/assuntos/racas-da-humanidade)
 
-[Reencarnação](https://joaquim-capitao.github.io/jw/assuntos/reencarnacao.md)
+[Reencarnação](https://joaquim-capitao.github.io/jw/assuntos/reencarnacao)
 
-[Reino](https://joaquim-capitao.github.io/jw/assuntos/reino.md)
+[Reino](https://joaquim-capitao.github.io/jw/assuntos/reino)
 
-[Religião](https://joaquim-capitao.github.io/jw/assuntos/religiao.md)
+[Religião](https://joaquim-capitao.github.io/jw/assuntos/religiao)
 
-[Resgate](https://joaquim-capitao.github.io/jw/assuntos/resgate.md)
+[Resgate](https://joaquim-capitao.github.io/jw/assuntos/resgate)
 
-[Ressurreição](https://joaquim-capitao.github.io/jw/assuntos/ressurreicao.md)
+[Ressurreição](https://joaquim-capitao.github.io/jw/assuntos/ressurreicao)
 
-[Sábado](https://joaquim-capitao.github.io/jw/assuntos/sabado.md)
+[Sábado](https://joaquim-capitao.github.io/jw/assuntos/sabado)
 
-[Salvação](https://joaquim-capitao.github.io/jw/assuntos/salvacao.md)
+[Salvação](https://joaquim-capitao.github.io/jw/assuntos/salvacao)
 
-[Sangue](https://joaquim-capitao.github.io/jw/assuntos/sangue.md)
+[Sangue](https://joaquim-capitao.github.io/jw/assuntos/sangue)
 
-[Santos](https://joaquim-capitao.github.io/jw/assuntos/santos.md)
+[Santos](https://joaquim-capitao.github.io/jw/assuntos/santos)
 
-[Satanás, o Diabo](https://joaquim-capitao.github.io/jw/assuntos/satanas-o-diabo.md)
+[Satanás, o Diabo](https://joaquim-capitao.github.io/jw/assuntos/satanas-o-diabo)
 
-[Sexo](https://joaquim-capitao.github.io/jw/assuntos/sexo.md)
+[Sexo](https://joaquim-capitao.github.io/jw/assuntos/sexo)
 
-[Sofrimento](https://joaquim-capitao.github.io/jw/assuntos/sofrimento.md)
+[Sofrimento](https://joaquim-capitao.github.io/jw/assuntos/sofrimento)
 
-[Sonhos](https://joaquim-capitao.github.io/jw/assuntos/sonhos.md)
+[Sonhos](https://joaquim-capitao.github.io/jw/assuntos/sonhos)
 
-[Sucessão apostólica](https://joaquim-capitao.github.io/jw/assuntos/sucessao-apostolica.md)
+[Sucessão apostólica](https://joaquim-capitao.github.io/jw/assuntos/sucessao-apostolica)
 
-[Terra](https://joaquim-capitao.github.io/jw/assuntos/terra.md)
+[Terra](https://joaquim-capitao.github.io/jw/assuntos/terra)
 
-[Testemunhas de Jeová](https://joaquim-capitao.github.io/jw/assuntos/testemunhas-de-jeova.md)
+[Testemunhas de Jeová](https://joaquim-capitao.github.io/jw/assuntos/testemunhas-de-jeova)
 
-[Tradução do Novo Mundo](https://joaquim-capitao.github.io/jw/assuntos/traducao-do-novo-mundo.md)
+[Tradução do Novo Mundo](https://joaquim-capitao.github.io/jw/assuntos/traducao-do-novo-mundo)
 
-[Trindade](https://joaquim-capitao.github.io/jw/assuntos/trindade.md)
+[Trindade](https://joaquim-capitao.github.io/jw/assuntos/trindade)
 
-[Últimos dias](https://joaquim-capitao.github.io/jw/assuntos/ultimos-dias.md)
+[Últimos dias](https://joaquim-capitao.github.io/jw/assuntos/ultimos-dias)
 
-[Vida](https://joaquim-capitao.github.io/jw/assuntos/vida.md)
+[Vida](https://joaquim-capitao.github.io/jw/assuntos/vida)
 
-[Volta de Cristo](https://joaquim-capitao.github.io/jw/assuntos/volta-de-cristo.md)
+[Volta de Cristo](https://joaquim-capitao.github.io/jw/assuntos/volta-de-cristo)
