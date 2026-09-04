@@ -1,6 +1,6 @@
 ### Quando o apóstolo Paulo disse que os cristãos seriam “arrebatados”, encontrando-se com o Senhor, qual era o assunto em pauta?
 
-1 Tes. 4:13-18, IBB: “Não queremos, porém, irmãos, que sejais ignorantes acerca dos que já dormem [“dos que dormem na morte”, NE; “dos mortos”, BV, MC], para que não vos entristeçais como os outros que não têm esperança. Porque, se cremos que Jesus morreu e ressurgiu, assim também aos que dormem, Deus, mediante Jesus, os tornará a trazer juntamente com ele. Dizemo-vos, pois, isto pela palavra do Senhor: que nós, os que ficarmos vivos para a vinda do Senhor, de modo algum precederemos os que já dormem. Porque o Senhor mesmo descerá do céu com grande brado, à voz do arcanjo, ao som da trombeta de Deus, e os que morreram em Cristo ressuscitarão primeiro. Depois nós, os que ficarmos vivos, seremos arrebatados juntamente com eles, nas nuvens, ao encontro do Senhor nos ares, e assim estaremos para sempre com o Senhor. Portanto, consolai-vos uns aos outros com estas palavras.” (Evidentemente, alguns membros da congregação cristã em Tessalônica haviam morrido. Paulo incentivou os sobreviventes a consolarem-se uns aos outros com a esperança da ressurreição. Ele lhes lembrou que Jesus fora ressuscitado depois de morrer; portanto, também, na vinda do Senhor, aqueles fiéis cristãos entre eles que haviam morrido seriam ressuscitados para estarem com Cristo.)
+1 Tes. 4:13-18 - Arrebatamento
 
 ### Quem são os que serão ‘arrebatados nas nuvens’, conforme declarado em 1 Tessalonicenses 4:17?
 
