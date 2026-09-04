@@ -80,7 +80,7 @@
 [Não acredito em Deus](nao-acredito-em-deus)
 
 <br>
-[Assuntos gerais](assuntos-gerais)
+[Assuntos gerais](https://joaquim-capitao.github.io/jw/assuntos)
 
 
 
