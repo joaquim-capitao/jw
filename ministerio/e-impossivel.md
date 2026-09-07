@@ -7,3 +7,4 @@
 
 [Rom 8:32](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=45008032&pub=nwtsty) - Visto que não poupou o Filho
 
+[Jeremias 32:17](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=24032017&pub=nwtsty) - Fizeste os céus e a terra. Nada é impossível para ti.
