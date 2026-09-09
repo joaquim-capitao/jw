@@ -79,6 +79,9 @@
 
 [Não acredito em Deus](nao-acredito-em-deus)
 
+[Cada um interpreta à sua maneira](cada-um-interpreta)
+
+
 <br>
 [Assuntos gerais](https://joaquim-capitao.github.io/jw/assuntos)
 
