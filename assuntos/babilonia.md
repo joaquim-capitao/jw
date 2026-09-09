@@ -8,5 +8,5 @@ Saiam dela, meu povo.
 ---
 #### - Como identificar?
 
-https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/babilonia-a-grande/
+[Babilónia, a Grande](https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/babilonia-a-grande/)
 
