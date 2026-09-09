@@ -16,7 +16,7 @@
 
 [Arrebatamento](https://joaquim-capitao.github.io/jw/assuntos/arrebatamento)
 
-[Babilónia, a Grande](https://joaquim-capitao.github.io/jw/assuntos/babilonia-a-grande)
+[Babilónia, a Grande](https://joaquim-capitao.github.io/jw/assuntos/babilonia)
 
 [Batismo](https://joaquim-capitao.github.io/jw/assuntos/batismo)
 
