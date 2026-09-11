@@ -1,6 +1,6 @@
 Rev. 16:14, 16 - Har-Magedon [Armagedom]
 
-### Travar-se-á o Armagedom unicamente no Oriente Médio?
+### Onde?
 
 Rev. 16:14 - “Vão aos reis de toda a terra habitada, a fim de ajuntá-los para a guerra do grande dia de Deus, o Todo-poderoso.”  
 
@@ -8,7 +8,7 @@ Rev. 19:19 - “Eu vi a fera [o domínio político humano como um todo] e os rei
 
 Jer. 25:33 - “Os mortos por Jeová ... de uma extremidade da terra até à outra extremidade da terra.”  
 
-### Quem ou o que será destruído no Armagedom?  
+### Quem será destruído?  
 
 Dan. 2:44 - “Esmiuçará e porá termo a todos estes reinos"  
 
