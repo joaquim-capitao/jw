@@ -11,4 +11,6 @@
 
 [Evangelhos apócrifos](https://www.jw.org/pt/biblioteca/revistas/wp20120401/Evangelhos-ap%C3%B3crifos-verdades-ocultas-sobre-Jesus/)
 
+[Livros Apócrifos das Escrituras Hebraicas](https://www.jw.org/finder?wtlocale=T&docid=1101990131&srctype=wol&srcid=share&par=48)
+
 [Cânon da Biblia](https://www.jw.org/pt-pt/biblioteca/livros/glossario-biblia/canon-da-biblia/)
