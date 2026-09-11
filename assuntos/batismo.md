@@ -1,5 +1,7 @@
 [O que é o Batismo?](https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/o-que-batismo/)  
 
+### É necessário
+
 Mateus 28:19-20 - "façam discípulos, batizando-os".  
 
 Atos 2:41 - os que aceitaram com alegria as suas palavras foram batizados.  
