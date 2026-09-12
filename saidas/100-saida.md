@@ -1,3 +1,5 @@
+## Campanha Setembro de 2026
+
 Está em andamento  
 uma campanha dupla.  
 
@@ -19,24 +21,30 @@ Sábado, 26 de setembro
 ### - Qual vai ser o tema?...
 
 Tema:  
-"Como é que a Bíblia o pode ajudar?"
+*"Como é que a Bíblia o pode ajudar?"*
 
 ---
 ### Conclusão 
 
 Queremos demonstrar 
 o mesmo espírito de Jesus:  
+
+<br>
+
 **(João 4:34)**  
 *"Jesus disse-lhes: “O meu alimento é fazer a vontade daquele que me enviou e terminar a sua obra"*  
 
 <br>
 
-Portanto,  
+Como mostra o texto,  
 o ministério não é apenas um dever, 
 mas algo que nos nutre espiritualmente.  
 
 <br>
 
-Façamos o nosso melhor  
+Portanto,
+façamos o nosso melhor  
 nesta campanha especial.
+
+<br>
 
