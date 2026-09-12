@@ -18,7 +18,8 @@ Sábado, 26 de setembro
 ---
 ### - Qual vai ser o tema?...
 
-Como é que a Bíblia o pode ajudar?
+Tema:  
+"Como é que a Bíblia o pode ajudar?"
 
 ---
 ### Conclusão 
