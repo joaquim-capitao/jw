@@ -80,3 +80,6 @@
 [039 - Tema](https://joaquim-capitao.github.io/jw/saidas/039-saida)
 
 [040 - Tema](https://joaquim-capitao.github.io/jw/saidas/040-saida)
+
+[100 - Campanha Setembro/2026](https://joaquim-capitao.github.io/jw/saidas/040-saida)
+
