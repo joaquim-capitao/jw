@@ -9,6 +9,8 @@ De acordo com o Dicionário Vine — O Significado Exegético e Expositivo das P
 
 [Artigo: Jesus morreu numa cruz?](https://www.jw.org/pt/ensinos-biblicos/perguntas/jesus-morreu-numa-cruz/)
 
+[Imagem](https://cms-imgp.jw-cdn.org/img/p/502013284/univ/art/502013284_univ_cnt_1_md.jpg)
+
 ---
 ### Devemos usar símbolos na adoração?
 
