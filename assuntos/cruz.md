@@ -9,6 +9,7 @@ Várias obras de referência concordam: [^1]
 
 [Artigo: Jesus morreu numa cruz?](https://www.jw.org/pt/ensinos-biblicos/perguntas/jesus-morreu-numa-cruz/)
 
+---
 ### Devemos usar símbolos na adoração?
 
 (Deuteronômio 4:15-19) - Deus proibiu os israelitas de usar “a figura de qualquer símbolo” em sua adoração.   
@@ -16,11 +17,10 @@ Várias obras de referência concordam: [^1]
   
 [Por que os cristãos verdadeiros não usam a cruz na adoração](https://www.jw.org/pt/biblioteca/livros/biblia-ensina/origem-cruz-simbolo-pagao/)
 
+---
 ### Fontes seculares que confirmam que a tradução "estaca" ou "madeiro" está correta:
 
-[^1]:
-
-- **O Novo Dicionário da Bíblia**, Edição Revisada, editado por J. D. Douglas, página 310   
+[^1]: - **O Novo Dicionário da Bíblia**, Edição Revisada, editado por J. D. Douglas, página 310   
 - **Theological Dictionary of the New Testament (Dicionário Teológico do Novo Testamento)**, Volume VII, página 572  
 - **The International Standard Bible Encyclopedia (Enciclopédia Bíblica Padrão Internacional)**, Edição Revisada, Volume 1, página 825  
 - **The Imperial Bible-Dictionary (Dicionário Bíblico Imperial)**, Volume II, página 84.  
