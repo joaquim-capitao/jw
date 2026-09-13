@@ -9,7 +9,7 @@
 
 ### O hábito de confessar ao sacerdote não é bíblico
 
-[Citações de Enciclopédias Católicas](https://www.jw.org/finder?wtlocale=T&docid=1101989217&srctype=wol&srcid=share&par=20)
+[Citações de Enciclopédias Católicas](https://www.jw.org/finder?wtlocale=T&docid=1101989217&srctype=wol&srcid=share&par=20)  
 Só muito depois da morte de Jesus e dos apóstolos é que se introduziu o hábito de confissão ao sacerdote.  
 (Mat. 6:7) - Não fazer orações repetitivas   
 (Mat. 23:1, 9) - Não chamar ninguém de "Pai"   
