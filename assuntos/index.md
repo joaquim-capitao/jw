@@ -84,6 +84,8 @@
 
 [Maria](https://joaquim-capitao.github.io/jw/assuntos/maria)
 
+[Memorial](https://joaquim-capitao.github.io/jw/assuntos/comemoracao)
+
 [Missa](https://joaquim-capitao.github.io/jw/assuntos/missa)
 
 [Morte](https://joaquim-capitao.github.io/jw/assuntos/morte)
