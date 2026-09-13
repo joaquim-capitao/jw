@@ -24,7 +24,7 @@
 
 [Casamento](https://joaquim-capitao.github.io/jw/assuntos/casamento)
 
-[Céu](https://joaquim.capitao-github.io/jw/assuntos/ceu)
+[Céu](https://joaquim-capitao.github.io/jw/assuntos/ceu)
 
 [Comemoração](https://joaquim-capitao.github.io/jw/assuntos/comemoracao)
 
