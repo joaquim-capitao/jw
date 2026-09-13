@@ -5,8 +5,6 @@
 
 De acordo com o Dicionário Vine — O Significado Exegético e Expositivo das Palavras do Antigo e do Novo Testamento, stau·rós “denota, primariamente, poste ou estaca vertical. Em tais peças os malfeitores eram pregados para execução. O substantivo stau·rós e o verbo stauroō, amarrar a uma estaca ou poste, devem ser originalmente distinguidos da forma eclesiástica da cruz de duas vigas.
 
-Várias obras de referência concordam: [^1]
-
 [Artigo: Jesus morreu numa cruz?](https://www.jw.org/pt/ensinos-biblicos/perguntas/jesus-morreu-numa-cruz/)
 
 ---
@@ -20,7 +18,7 @@ Várias obras de referência concordam: [^1]
 ---
 ### Fontes seculares que confirmam que a tradução "estaca" ou "madeiro" está correta:
 
-[^1]: - **O Novo Dicionário da Bíblia**, Edição Revisada, editado por J. D. Douglas, página 310   
+- **O Novo Dicionário da Bíblia**, Edição Revisada, editado por J. D. Douglas, página 310   
 - **Theological Dictionary of the New Testament (Dicionário Teológico do Novo Testamento)**, Volume VII, página 572  
 - **The International Standard Bible Encyclopedia (Enciclopédia Bíblica Padrão Internacional)**, Edição Revisada, Volume 1, página 825  
 - **The Imperial Bible-Dictionary (Dicionário Bíblico Imperial)**, Volume II, página 84.  
