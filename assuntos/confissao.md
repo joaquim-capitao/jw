@@ -13,14 +13,12 @@
 Só muito depois da morte de Jesus e dos apóstolos é que se introduziu o hábito de confissão ao sacerdote.  
 (Mat. 6:7) - Não fazer orações repetitivas   
 (Mat. 23:1, 9) - Não chamar ninguém de "Pai"   
+    
+(João 20:23) - Se vocês perdoarem os pecados de alguém, eles estão perdoados; (O contexto mostra que era um dom do espírito dado apenas aos apóstolos:
+[Significado de João 20:23](https://www.jw.org/finder?wtlocale=TPO&docid=502015256&srctype=wol&srcid=share&par=17)
+
 
 ### Qual o objetivo de confessar aos anciãos
-
-
-
-
-
-
 
 (Tia. 5:14-16) - "orem sobre ele, untando-o com óleo em nome de Jeová."
 
