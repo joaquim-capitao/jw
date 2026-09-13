@@ -3,7 +3,7 @@
 (Mat. 6:6-12) - “ora a teu Pai que está em secreto . . . perdoa-nos as nossas dívidas"  
 (Sal. 32:5) - “Finalmente confessei-te o meu pecado... Farei confissão... a Jeová.’   
 (1 João 2:1) - “Se alguém cometer um pecado, temos um ajudador junto ao Pai, Jesus Cristo, um justo.”  
-(Luc. 17:3) - “Se teu irmão cometer um pecado, censura-o, e, se ele se arrepender, perdoa-lhe.” (quando o pecado é contra nós, podemos perdoar)
+(Luc. 17:3) - “Se teu irmão cometer um pecado, censura-o, e, se ele se arrepender, perdoa-lhe.” (quando o pecado é contra nós, podemos perdoar)   
 (Efé. 4:32) - Perdoando-vos uns aos outros
 
 
