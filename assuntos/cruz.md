@@ -11,6 +11,8 @@ De acordo com o Dicionário Vine — O Significado Exegético e Expositivo das P
 
 [Imagem](https://cms-imgp.jw-cdn.org/img/p/502013284/univ/art/502013284_univ_cnt_1_md.jpg)
 
+[Imagem 2](https://i.ibb.co/tTwskTwX/775-D4-C2-C-E96-C-475-D-9512-A1-E2-B690-F2-CB-jpeg-323d50a47b140bf199794f113df82a26.jpg)
+
 ---
 ### Devemos usar símbolos na adoração?
 
