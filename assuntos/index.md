@@ -86,6 +86,8 @@
 
 [Memorial](https://joaquim-capitao.github.io/jw/assuntos/comemoracao)
 
+[Milagres](https://joaquim-capitao.github.io/jw/assuntos/curas)
+
 [Missa](https://joaquim-capitao.github.io/jw/assuntos/missa)
 
 [Morte](https://joaquim-capitao.github.io/jw/assuntos/morte)
