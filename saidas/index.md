@@ -15,7 +15,7 @@
 
 [007 - Iniciar estudos por indicação](https://joaquim-capitao.github.io/jw/saidas/007-saida)
 
-[008 - Tema](https://joaquim-capitao.github.io/jw/saidas/008-saida)
+[008 - Como preparar os estudantes para dar testemunho informal](https://joaquim-capitao.github.io/jw/saidas/008-saida)
 
 [009 - Tema](https://joaquim-capitao.github.io/jw/saidas/009-saida)
 
