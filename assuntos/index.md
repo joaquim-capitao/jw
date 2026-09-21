@@ -66,6 +66,8 @@
 
 [Filosofia](https://joaquim-capitao.github.io/jw/assuntos/filosofia)
 
+[Fumo](https://joaquim-capitao.github.io/jw/assuntos/drogas)
+
 [Governo](https://joaquim-capitao.github.io/jw/assuntos/governo)
 
 [Imagens](https://joaquim-capitao.github.io/jw/assuntos/imagens)
