@@ -7,9 +7,13 @@
 
 (Tito 3:1) - Obediência aos governos (Em muitos lugares, as drogas são proibidas)  
 
+[Artigo: É pecado fumar?](https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/fumar-pecado/)
+
 ### - Como alguém pode livrar-se do vício?  
 
 (Luc. 11:9, 13) - Persistir em pedir  
 
-(Filipenses 4:13) - Para todas as coisas tenho força  
+(Filipenses 4:13) - Para todas as coisas tenho força   
+
+[Artigo: Será que a Bíblia pode ajudá-lo a vencer o vício das drogas?](https://www.jw.org/pt-pt/biblioteca/series/mais-assuntos/biblia-sobre-vicios/)
 
