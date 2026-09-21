@@ -9,6 +9,7 @@
 
 [Artigo: É pecado fumar?](https://www.jw.org/pt-pt/ensinos-biblicos/perguntas/fumar-pecado/)
 
+---
 ### - Como alguém pode livrar-se do vício?  
 
 (Luc. 11:9, 13) - Persistir em pedir  
