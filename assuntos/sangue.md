@@ -1,3 +1,7 @@
+
+---
+## ENTREVISTAS A MÉDICOS
+
 ### [Entrevista ao Professor Massimo P. Franchi](https://www.jw.org/pt-pt/noticias/regiao/italia/entrevista-professor-massimo-franchi/)
 
 “Eu agradeço às Testemunhas de Jeová porque me ajudaram muito. Elas fizeram com que um médico tradicional como eu visse a importância de reduzir o uso de transfusões de sangue.”
