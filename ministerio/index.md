@@ -69,6 +69,10 @@
 [Salmo 18:32](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19018032&pub=nwtsty) - "O verdadeiro Deus é aquele que me reveste de força"
 
 
+[Isaías 40:29](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=23040029&pub=nwtsty) - "Ele dá poder ao cansado E enche de vigor aquele que está sem forças"
+
+
+
 <br>
 ### Objeções
 
