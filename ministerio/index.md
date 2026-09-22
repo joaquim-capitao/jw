@@ -66,6 +66,9 @@
 [Salmo 55:22](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19055022&pub=nwtsty) - "Lança o teu fardo sobre Jeová"
 
 
+[Salmo 18:32](https://www.jw.org/finder?srcid=jwlshare&wtlocale=TPO&prefer=lang&bible=19018032&pub=nwtsty) - "O verdadeiro Deus é aquele que me reveste de força"
+
+
 <br>
 ### Objeções
 
