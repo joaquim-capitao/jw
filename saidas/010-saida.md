@@ -1,5 +1,7 @@
 ## Mensagem de julgamento 
 
+
+---
 ### - Quando <u>começa</u> e quando <u>acaba</u> a Grande Tribulação?...
 
 (Começa com a destruição da religião falsa. Termina no Armageddon)  
@@ -7,6 +9,7 @@
 
 ---
 **(Mateus 24:14)**
+*"E estas boas novas do Reino serão pregadas em toda a terra habitada, em testemunho a todas as nações,+ e então virá o fim."*
 
 ### - Este "fim" é o início da grande tribulação ou o Armageddon?...
 
@@ -22,7 +25,7 @@ As boas novas, ou boas notícias, serão pregadas até vir o Armagedom.
 
 A Sentinela de Agosto/2025, p.31 diz:
 *"A mensagem que pregamos será sempre a mesma. 
-a diferença é a reação das pessoas."*  
+A diferença é a reação das pessoas."*  
 
 ---
 
