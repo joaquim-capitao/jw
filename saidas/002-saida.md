@@ -1,5 +1,5 @@
 
-# 002 - Paciência e Bondade
+## Paciência e Bondade
 
 **Colossenses 3:12**:  
 *”Portanto, como escolhidos de Deus, santos e amados, revistam-se de terna compaixão, bondade, humildade, brandura e paciência.”*
