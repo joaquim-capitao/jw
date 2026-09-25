@@ -1,4 +1,4 @@
-# 006 Fazer revisitas
+## Fazer revisitas
 
 Todos sabemos que é importante fazer revisitas.
 
