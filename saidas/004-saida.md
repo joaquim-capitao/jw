@@ -1,11 +1,11 @@
 
-# Como sentir confiança para iniciar estudos bíblicos?
+## Como sentir confiança para iniciar estudos bíblicos?
 
 Às vezes,   
 não nos sentimos preparados   
 para dirigir um estudo bíblico.
 
-### O que pode ajudar a ter mais confiança?
+### O que pode ajudar a ter mais confiança?...
 
 ---
 **(2 Cor.3:5)**
@@ -16,7 +16,7 @@ Jeová considera-nos qualificados
 
 ---
 **(Mat. 28:18)**
-### Segundo este texto, porque podemos ter confiança?
+### Segundo este texto, porque podemos ter confiança?...
 <br>
 
 
@@ -26,7 +26,7 @@ Quem dá a ordem de ensinar outros
 
 ---
 **(João 12:49)**
-### Segundo este texto, porque podemos ter confiança?
+### Segundo este texto, porque podemos ter confiança?...
 <br>
 
 Jesus aceitava treinamento e orientações,  
