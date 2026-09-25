@@ -19,7 +19,7 @@
 
 [009 - "Qual é a vossa formação?](https://joaquim-capitao.github.io/jw/saidas/009-saida)
 
-[010 - Tema](https://joaquim-capitao.github.io/jw/saidas/010-saida)
+[010 - Mensagem de Julgamento](https://joaquim-capitao.github.io/jw/saidas/010-saida)
 
 [011 - Tema](https://joaquim-capitao.github.io/jw/saidas/011-saida)
 
