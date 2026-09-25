@@ -4,7 +4,7 @@
 **Colossenses 3:12**:  
 *”Portanto, como escolhidos de Deus, santos e amados, revistam-se de terna compaixão, bondade, humildade, brandura e paciência.”*
 
-### - Como podemos demonstrar cada uma destas qualidades?
+### - Como podemos demonstrar cada uma destas qualidades?...
 <br>
 
 
