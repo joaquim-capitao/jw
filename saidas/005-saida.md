@@ -6,7 +6,7 @@
 
 ---
 
-## 1. Abordar pessoas desconhecidas
+### **1. Abordar pessoas desconhecidas**
 
 Iniciar conversas com estranhos,  
 quando parecem ocupados ou pouco recetivos,  
@@ -20,7 +20,7 @@ Filipe fala com o eunuco etíope
 
 ---
 
-## 2. Voltar a territórios difíceis
+### **2. Voltar a territórios difíceis**
 
 (Regressar a casas    
 onde anteriormente houve rejeição    
@@ -38,7 +38,7 @@ Isso mostra notável coragem e persistência.
 
 ---
 
-## 3. Medo
+### **3. Medo**
 
 ### - Que exemplos bíblicos temos de servos de Jeová que lidaram com o medo?...
 <br>
