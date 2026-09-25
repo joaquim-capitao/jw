@@ -1,4 +1,4 @@
-# 005 - Situações que exigem coragem
+## Situações que exigem coragem
 
 **(Atos 4:29)**
 
