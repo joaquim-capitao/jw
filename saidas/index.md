@@ -17,7 +17,7 @@
 
 [008 - Como preparar os estudantes para dar testemunho informal](https://joaquim-capitao.github.io/jw/saidas/008-saida)
 
-[009 - Tema](https://joaquim-capitao.github.io/jw/saidas/009-saida)
+[009 - "Qual é a vossa formação?](https://joaquim-capitao.github.io/jw/saidas/009-saida)
 
 [010 - Tema](https://joaquim-capitao.github.io/jw/saidas/010-saida)
 
