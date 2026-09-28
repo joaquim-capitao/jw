@@ -4,12 +4,12 @@ Ver também:
 
 ### Jeová é o Criador
 
-Isa. 42:5 - Criador dos Céus  
-Isa 40:26 - Quem criou estas coisas?  
-Sal. 19:1 - Os Céus declaram a glória  
-Heb. 3:4 - Quem construiu todas as coisas foi Deus  
-Sal. 139:14 - Fui feito maravilhosamente. As tuas obras são maravilhosas.  
-Salmo 104:24 - A terra está cheia dos teus trabalhos    
+(Isa. 42:5) - Criador dos Céus  
+(Isa 40:26) - Quem criou estas coisas?  
+(Sal. 19:1) - Os Céus declaram a glória  
+(Heb. 3:4) - Quem construiu todas as coisas foi Deus  
+(Sal. 139:14) - Fui feito maravilhosamente. As tuas obras são maravilhosas.  
+(Salmo 104:24) - A terra está cheia dos teus trabalhos    
 
 ### Jeová usou a evolução para criar coisas?
    
