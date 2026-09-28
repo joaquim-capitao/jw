@@ -7,7 +7,9 @@
 
 (João 18:36) - O meu Reino não faz parte deste mundo  
 
-Festividades:  
+[Porque é que as Testemunhas de Jeová não comemoram certos feriados?](https://www.jw.org/pt-pt/testemunhas-de-jeova/perguntas-frequentes/testemunhas-jeova-comemorar-feriados/)  
+
+### Festividades:  
 [Natal](https://joaquim-capitao.github.io/jw/assuntos/natal)  
 [Ano Novo](https://joaquim-capitao.github.io/jw/assuntos/ano-novo)  
 Páscoa  
