@@ -86,7 +86,7 @@
 
 [Inferno](https://joaquim-capitao.github.io/jw/assuntos/inferno)
 
-[Iniqüidade](https://joaquim-capitao.github.io/jw/assuntos/iniquidade)
+[Iniquidade](https://joaquim-capitao.github.io/jw/assuntos/iniquidade)
 
 [Jeová](https://joaquim-capitao.github.io/jw/assuntos/jeova)
 
