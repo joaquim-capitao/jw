@@ -108,6 +108,8 @@
 
 [Nascer de novo](https://joaquim-capitao.github.io/jw/assuntos/nascer-de-novo)
 
+[Natal](https://joaquim-capitao.github.io/jw/assuntos/natal)
+
 [Neutralidade](https://joaquim-capitao.github.io/jw/assuntos/neutralidade)
 
 [Ocultismo](https://joaquim-capitao.github.io/jw/assuntos/espiritismo)
