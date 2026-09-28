@@ -1,7 +1,7 @@
 ### 1 - Como ajudou outros?
 
 Ao longo dos anos,  
-tenho tido a oportunidade. 
+tenho tido a oportunidade    
 de ajudar estudantes e irmãos jovens  
 a crescer espiritualmente.  
 
