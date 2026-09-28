@@ -1,6 +1,6 @@
 Ver também: 
-[Evolução](joaquim-capitao.github.io/jw/assuntos/evolucao)   
-[Deus](joaquim-capitao.github.io/jw/assuntos/deus)    
+[Evolução](evolucao)   
+[Deus](deus)    
 
 ### Jeová é o Criador
 
