@@ -40,6 +40,8 @@
 
 [Datas](https://joaquim-capitao.github.io/jw/assuntos/datas)
 
+[Demónios](https://joaquim-capitao.github.io/jw/assuntos/demonios)
+
 [Destino](https://joaquim-capitao.github.io/jw/assuntos/destino)
 
 [Divórcio](https://joaquim-capitao.github.io/jw/assuntos/divorcio)
@@ -103,6 +105,8 @@
 [Nascer de novo](https://joaquim-capitao.github.io/jw/assuntos/nascer-de-novo)
 
 [Neutralidade](https://joaquim-capitao.github.io/jw/assuntos/neutralidade)
+
+[Ocultismo](https://joaquim-capitao.github.io/jw/assuntos/espiritismo)
 
 [Oração](https://joaquim-capitao.github.io/jw/assuntos/oracao)
 
