@@ -5,7 +5,7 @@ tenho tido a oportunidade.
 de ajudar estudantes e irmãos jovens  
 a crescer espiritualmente.  
 
-E faço isso por 
+E faço isso por  
 . sair ao campo com eles,  
 . falar com alegria sobre o ministério  
 . e dar-lhes sugestões práticas.  
