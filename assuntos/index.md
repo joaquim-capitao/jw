@@ -56,6 +56,8 @@
 
 [Espírito](https://joaquim-capitao.github.io/jw/assuntos/espirito)
 
+[Espírito Santo](https://joaquim-capitao.github.io/jw/assuntos/espirito-santo)
+
 [Espírito do mundo](https://joaquim-capitao.github.io/jw/assuntos/espirito-do-mundo)
 
 [Evolução](https://joaquim-capitao.github.io/jw/assuntos/evolucao)
