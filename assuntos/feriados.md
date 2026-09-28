@@ -12,6 +12,8 @@
 ### Festividades:  
 [Natal](https://joaquim-capitao.github.io/jw/assuntos/natal)  
 [Ano Novo](https://joaquim-capitao.github.io/jw/assuntos/ano-novo)  
+[Halloween](https://joaquim-capitao.github.io/jw/assuntos/halloween)  
+
 Páscoa  
 Dia dos Namorados  
 Dia das Mães  
