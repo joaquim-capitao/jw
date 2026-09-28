@@ -78,6 +78,8 @@
 
 [Governo](https://joaquim-capitao.github.io/jw/assuntos/governo)
 
+[Halloween](https://joaquim-capitao.github.io/jw/assuntos/halloween)
+
 [Imagens](https://joaquim-capitao.github.io/jw/assuntos/imagens)
 
 [Independência](https://joaquim-capitao.github.io/jw/assuntos/independencia)
