@@ -1,3 +1,5 @@
+Ver também: [Evolução](joaquim-capitao.github.io/jw/assuntos/evolucao); [Deus](joaquim-capitao.github.io/jw/assuntos/deus)    
+
 ### Jeová é o Criador
 
 Isa. 42:5 - Criador dos Céus  
