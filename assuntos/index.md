@@ -6,6 +6,8 @@
 
 [Adoração de antepassados](https://joaquim-capitao.github.io/jw/assuntos/adoracao-de-antepassados)
 
+[Ajustes no entendimento](https://joaquim-capitao.github.io/jw/assuntos/ajustes-no-entendimento)
+
 [Alma](https://joaquim-capitao.github.io/jw/assuntos/alma)
 
 [Aniversário natalício](https://joaquim-capitao.github.io/jw/assuntos/aniversario-natalicio)
