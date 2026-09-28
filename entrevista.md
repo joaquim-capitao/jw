@@ -26,7 +26,7 @@ Como Jesus disse,
 Por isso,  
 embora todo o mérito pertença a Jeová,  
 sinto-me feliz de saber que dei   
-uma pequena contribuição. 
+uma pequena contribuição  
 para que alguns irmãos progredissem.  
 
 Ao mesmo tempo,  
