@@ -12,6 +12,8 @@
 
 [Aniversário natalício](https://joaquim-capitao.github.io/jw/assuntos/aniversario-natalicio)
 
+[Ano Novo](https://joaquim-capitao.github.io/jw/assuntos/ano-novo)
+
 [Anticristo](https://joaquim-capitao.github.io/jw/assuntos/anticristo)
 
 [Apostasia](https://joaquim-capitao.github.io/jw/assuntos/apostasia)
