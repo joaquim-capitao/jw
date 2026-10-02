@@ -21,7 +21,7 @@
 
 [010 - Mensagem de Julgamento](https://joaquim-capitao.github.io/jw/saidas/010-saida)
 
-[011 - Tema](https://joaquim-capitao.github.io/jw/saidas/011-saida)
+[011 - Introduzir eficazmente os textos](https://joaquim-capitao.github.io/jw/saidas/011-saida)
 
 [012 - Tema](https://joaquim-capitao.github.io/jw/saidas/012-saida)
 
