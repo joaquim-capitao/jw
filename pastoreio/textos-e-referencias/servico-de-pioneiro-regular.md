@@ -4,8 +4,7 @@ Quem observa o vento não semeará, e quem olha para as nuvens não colherá.+
 
 
 [**(1 Tim. 6:6-8)**](https://wol.jw.org/pt-PT/wol/bc/r296/lp-tpo/202007206/2/0)
-
-
+se tivermos o que comer e o que vestir, estaremos contentes
 
 
 
