@@ -59,9 +59,11 @@ Ver: [Técnicas usadas pelos apóstatas](apostatas-tecnicas)
 
 ### Suposto envolvimento na ONU
 
+Ver: [Suposto envolvimento com a ONU](organizacao(suposto-envolvimento-com-a-onu))
+
+### Russel era Maçom?
 
 
-### Russel era Maçom
 
 ### Testemunhas de Jeová e o Ensino Superior
 
