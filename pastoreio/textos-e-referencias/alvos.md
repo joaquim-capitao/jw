@@ -1,15 +1,17 @@
 
-[[Orações]]
+[Orações](oracoes)
 
-[[Servo Ministerial (qualificar-se)]]
+[Leitura da Bíblia](leitura-da-biblia)
 
-[[Ancião (qualificar-se)]]
+[Servo Ministerial (qualificar-se)](servo-ministerial(qualificar-se))
 
-[[Serviço de Pioneiro Regular]]
+[Ancião (qualificar-se)](anciao(qualificar-se))
 
-[[Serviço de Pioneiro Especial]]
+[Serviço de Pioneiro Regular](servico-de-pioneiro-regular)
 
-[[Serviço em Betel]]
+[Serviço de Pioneiro Especial](servico-de-pioneiro-especial)
+
+[Serviço em Betel](servico-em-betel)
 
 
 
