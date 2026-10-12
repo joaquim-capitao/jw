@@ -63,9 +63,12 @@ Ver: [Suposto envolvimento com a ONU](organizacao(suposto-envolvimento-com-a-onu
 
 ### Russel era Maçom?
 
+Ver: [Russell era Maçom?](russell-macom)
 
 
 ### Testemunhas de Jeová e o Ensino Superior
+
+Ver: [TJ e Ensino Superior](tj-e-ensino-superior)
 
 ### Questão do Sangue
 
