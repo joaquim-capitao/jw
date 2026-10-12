@@ -172,4 +172,4 @@ Se uma Bíblia adulterada recebe estes elogios, então estamos perante um verdad
 
 Veja também:
 
-[[Outras questões relacionadas com a Tradução do Novo Mundo ]]
+[Outras questões relacionadas com a Tradução do Novo Mundo](traducao-do-novo-mundo-questoes)
