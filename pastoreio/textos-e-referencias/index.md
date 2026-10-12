@@ -13,7 +13,7 @@
 [Ingratidão](ingratidao)  
 [Injustiças](injusticas)  
 [Mudança de Congregação](mudanca-de-congregacao)  
-[Não se meter nos assuntos dos outros](não-se-meter-nos-assuntos-dos-outros)  
+[Não se meter nos assuntos dos outros](nao-se-meter-nos-assuntos-dos-outros)  
 [Orações](oracoes)  
 [Orações](oracoes)  
 [Organização de Jeová](organizacao-de-Jeova)  
