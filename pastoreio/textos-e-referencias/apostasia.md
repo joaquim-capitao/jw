@@ -55,7 +55,11 @@ Porque não encontram um objetivo mais nobre na vida?
 
 ### Técnicas usadas pelos apóstatas
 
+Ver: [Técnicas usadas pelos apóstatas](apostatas-tecnicas)
+
 ### Suposto envolvimento na ONU
+
+
 
 ### Russel era Maçom
 
