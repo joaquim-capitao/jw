@@ -9,13 +9,16 @@ _Quando estava a ser insultado, não respondia com insultos. Quando estava a sof
 [Deixar as coisas nas mãos de Jeová](https://www.jw.org/finder?wtlocale=TPO&alias=daily-text&date=2026-06-11&srctype=wol&srcid=share)  
 
 
-### Vitória de Pirro
-
-[Poderá ganhar, mas perder ](https://wol.jw.org/pt/wol/d/r5/lp-t/101974480)  
-
-
 ### Dentro da congregação 
 
 [Quando um amigo é removido](https://www.jw.org/finder?wtlocale=TPO&docid=2022280&srctype=wol&srcid=share&par=48)  
+
+
+### Vitória de Pirro
+
+[Poderá ganhar, mas perder ](https://wol.jw.org/pt/wol/d/r5/lp-t/101974480)   
+
+
+
 
 
