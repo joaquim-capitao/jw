@@ -1,6 +1,6 @@
 #para-pastoreio #familiares-descrentes #pressão-familiar
 
-([Luc. 13:6-9](https://wol.jw.org/pt-PT/wol/bc/r296/lp-tpo/2026281/2/0))  
+([Luc. 13:6-9](https://wol.jw.org/pt-PT/wol/bc/r296/lp-tpo/2026281/2/0)  
 Ilustração do Agricultor mostra que Jesus não desistia facilmente das pessoas  
 
 [**Gálatas 6:9**](https://wol.jw.org/pt-PT/wol/bc/r296/lp-tpo/2026281/5/0)  
