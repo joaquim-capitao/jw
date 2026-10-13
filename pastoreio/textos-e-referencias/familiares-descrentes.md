@@ -23,7 +23,6 @@ Após a ressurreição, Jesus apareceu a Tiago. (Isto mostra a importância de d
 [Atos 1:14](https://wol.jw.org/pt-PT/wol/bc/r296/lp-tpo/2026281/21/0)  
 Depois de Jesus morrer e ser ressuscitado, pelo menos dois dos seus irmãos, Tiago e Judas, tornaram-se cristãos.  
 
-
-[Quadro: Será que devo ir ao casamento ou ao funeral de um familiar?](https://wol.jw.org/pt-PT/wol/d/r296/lp-tpo/2026281#h=26:~:text=par%C3%A1grafo%2017.)g-,Ser%C3%A1%20que%20devo%20ir%20ao%20casamento%20ou%20ao%20funeral%20de%20um%20familiar%3F,-Normalmente%2C%20as%20fam%C3%ADlias)  
+[Quadro: Será que devo ir ao casamento ou ao funeral de um familiar?](https://www.jw.org/finder?wtlocale=TPO&docid=2026281&srctype=wol&srcid=share&par=86)
 
 [Artigo: Como ajudar familiares que não servem a Jeová](https://wol.jw.org/pt-PT/wol/d/r296/lp-tpo/2026281)  
