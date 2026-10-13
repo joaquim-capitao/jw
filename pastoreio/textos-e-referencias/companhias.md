@@ -1,6 +1,7 @@
 
 
-[[Ser seletivos dentro da congregação]]
+
+[Ser seletivos dentro da congregação](seletivos-na-congregacao)
 
 [[Princípio da “responsabilidade comum”]]
 
