@@ -1,6 +1,7 @@
 ### Textos e Referências
 
 [Alvos](alvos)  
+[Amizades](companhias)  
 [Ancião, qualificar-se](anciao(qualificar-se))  
 [Anciãos](anciaos)  
 [Apostasia](apostasia)  
